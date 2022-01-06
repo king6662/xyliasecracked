@@ -6,6 +6,7 @@ _____________________________________________________________
 
 download the tool (windows Defender has be of, becase its cracked!)
 
-and simply open the exe have fun with raiding etc
+## and simply open the exe 
 
-![preview] (https://cdn.discordapp.com/attachments/927986974340579411/928610787356999680/31eb18_24e04ca97f6546a5aad81f32f80c4d67_mv2.jpg)
+
+### have fun with raiding etc
