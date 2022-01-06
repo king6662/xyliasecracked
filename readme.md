@@ -4,6 +4,6 @@ _____________________________________________________________
 !this is a cracked version !
 _____________________________________________________________
 
-download the tool (###windows Defender has be of, becase its cracked!)
+download the tool (windows Defender has be of, becase its cracked!)
 
-and simply open the exe ###have fun with raiding etc
+and simply open the exe have fun with raiding etc
