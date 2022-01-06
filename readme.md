@@ -7,6 +7,11 @@ _____________________________________________________________
 download the tool (windows Defender has be of, becase its cracked!)
 
 ## and simply open the exe 
+_____________________________________________________________
 
 
 ### have fun with raiding etc
+
+______________________________________________________________
+
+# download: soon
