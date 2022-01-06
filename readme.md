@@ -14,4 +14,11 @@ _____________________________________________________________
 
 ______________________________________________________________
 
-# download: soon
+# download: https://www.mediafire.com/file/l3f1ajlpyu23x8a/Auto_Registrator.rar/file
+
+############ i cant make n github because its too many files etc !##################
+
+
+
+
+
